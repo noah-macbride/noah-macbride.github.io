@@ -1,1 +1,0 @@
-# noah-macbride.github.io
